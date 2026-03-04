@@ -7,86 +7,95 @@
 
 STILL WORK IN PRORESS
 
-<p align="center">𝔄 𝔪𝔬𝔲𝔫𝔱𝔞𝔦𝔫 𝔖𝔬𝔫𝔤 ℭ𝔥𝔦𝔩𝔩𝔰 𝔪𝔶 𝔴𝔞𝔯𝔪 𝔖𝔨𝔦𝔫
+*<p align="center">What's the worst thing that could happen?*
   
-<p align="center">𝔄 𝔟𝔞𝔩𝔩𝔞𝔡 𝔬𝔣 𝔞 𝔩𝔬𝔫𝔢𝔖𝔬𝔪𝔢 𝔭𝔢𝔞𝔨
+*<p align="center">What's the worst thing you can imagine?*
 
-<p align="center">ℑ ℭ𝔲𝔯𝔖𝔢 𝔱𝔥𝔢 𝔤𝔯𝔬𝔲𝔫𝔡,  𝔖𝔥𝔢𝔡 𝔪𝔶 𝔬𝔩𝔡 𝔖𝔦𝔫𝔰
+*<p align="center">This world is a nasty place*
 
-<p align="center">𝔉𝔬𝔯 𝔴𝔢𝔦𝔤𝔥𝔱 𝔴𝔦𝔩𝔩 𝔬𝔫𝔩𝔶 𝔪𝔞𝔨𝔢 𝔪𝔢 𝔴𝔢𝔞𝔨
-
-
-<p align="center">-
+*<p align="center">I'm afraid to get comfortable*
 
 
-<p align="center">ℑ 𝔟𝔢𝔤 𝔱𝔥𝔢 𝔰𝔱𝔞𝔯𝔰 𝔱𝔬 𝔪𝔞𝔯𝔯𝔶 𝔪𝔢
-  
-<p align="center">𝔉𝔬𝔯 𝔗𝔥𝔢𝔶 𝔞𝔯𝔢 𝔪𝔶 𝔤𝔲𝔦𝔡𝔢
-
-<p align="center">𝔅𝔲𝔱 𝔡𝔞𝔶𝔩𝔦𝔤𝔥𝔱 𝔠𝔬𝔪𝔢𝔰 𝔱𝔬 𝔠𝔩𝔞𝔦𝔪 𝔱𝔥𝔢𝔦𝔯 𝔟𝔢𝔞𝔲𝔗𝔶
-
-<p align="center">𝔄𝔰 𝔣𝔲𝔯𝔶 𝔭𝔞𝔦𝔫𝔗𝔰 𝔱𝔶𝔢 𝔴𝔞𝔰𝔗𝔢𝔩𝔞𝔫𝔡 𝔴𝔦𝔡𝔢
+<p align="center">--
 
 
-<p align="center">-
+*<p align="center">Unavoidable disaster*
+
+*<p align="center">Serial over-reactor*
+
+*<p align="center">My head is a nasty place*
+
+*<p align="center">I'm afraid to get comfortable*
 
 
-<p align="center">ℑ'𝔪 𝔫𝔬𝔱 𝔶𝔬𝔲𝔯 𝔥𝔦𝔤𝔥𝔫𝔢𝔰𝔰
-  
-<p align="center">𝔄 𝔡𝔞𝔪𝔰𝔢𝔩 𝔩𝔢𝔣𝔱 𝔥𝔢𝔩𝔭𝔩𝔢𝔰𝔰 𝔟𝔶 𝔣𝔯𝔦𝔤𝔥𝔱
-
-<p align="center">ℑ 𝔞𝔪 𝔞 𝔩𝔦𝔬𝔫𝔢𝔰𝔰
-
-<p align="center">𝔉𝔦𝔢𝔯ℭ𝔢 𝔞𝔰 ℑ 𝔴𝔞𝔩𝔨 𝔱𝔥𝔯𝔬𝔲𝔤𝔥 𝔱𝔥𝔢 𝔫𝔦𝔤𝔥𝔱
+<p align="center">--
 
 
-<p align="center">-
+*<p align="center">What were you thinking?*
+
+*<p align="center">Shouldn't you know better?*
+
+*<p align="center">You opened the door for 
+**an apex predator***
 
 
-<p align="center">𝔄 ℭ𝔞𝔫𝔳𝔞𝔰, 𝔪𝔨 𝔪𝔞𝔨𝔢𝔖𝔥𝔦𝔣𝔱 𝔖𝔥𝔢𝔩𝔱𝔢𝔯
-  
-<p align="center">𝔄 𝔪𝔞𝔫 𝔴𝔬𝔲𝔩𝔡 𝔫𝔢𝔳𝔢𝔯 𝔨𝔫𝔬𝔴 𝔥𝔦𝔰 𝔟𝔯𝔦𝔡𝔢
-  
-<p align="center">𝔄𝔫 𝔞𝔫𝔤𝔯𝔶 𝔰𝔲𝔫 𝔟𝔢𝔣𝔬𝔯𝔢 ℭ𝔬𝔲𝔩𝔡 𝔪𝔢𝔩𝔱 𝔥𝔢𝔯
-  
-<p align="center">𝔅𝔲𝔱 ℭ𝔞𝔩𝔩𝔬𝔲𝔖𝔢𝔡 𝔫𝔬𝔴 𝔰𝔥𝔢 𝔴𝔦𝔩𝔩 𝔖𝔲𝔯𝔳𝔦𝔳𝔢
+<p align="center">--
 
 
-<p align="center">-
+*<p align="center">I keep forgetting*
+
+*<p align="center">The lessons I've learned*
+
+*<p align="center">So, I keep getting*
+
+***<p align="center">Hurt***
 
 
-<p align="center">𝔚𝔦𝔱𝔥 𝔪𝔞𝔩𝔦𝔠𝔢, 𝔟𝔢𝔞𝔰𝔱𝔰 𝔴𝔦𝔩𝔩 𝔰𝔥𝔬𝔴 𝔱𝔥𝔢𝔦𝔯 𝔣𝔞𝔫𝔤𝔰
-  
-<p align="center">𝔗𝔥𝔢𝔶'𝔯𝔢 𝔦𝔫 𝔣𝔬𝔯 𝔞 𝔰𝔲𝔯𝔭𝔯𝔦𝔰𝔢
-  
-<p align="center">𝔅𝔯𝔞𝔳𝔢𝔩𝔶 ℑ 𝔴𝔦𝔩𝔩 𝔴𝔦𝔢𝔩𝔡 𝔪𝔶 𝔴𝔢𝔞𝔭𝔬𝔫
-  
-<p align="center">ℑ 𝔪𝔞𝔡𝔢 𝔣𝔯𝔬𝔪 𝔣𝔞𝔫𝔤𝔰 𝔬𝔣 𝔱𝔥𝔬𝔖𝔢 𝔱𝔥𝔞𝔱 𝔡𝔦𝔢𝔡
+<p align="center">--
 
 
-<p align="center">-
+*<p align="center">Oh, the path of least resistance*
+
+*<p align="center">Foolish misinterpretation*
+
+*<p align="center">Your heart is a nasty place*
+
+*<p align="center">I'm afraid to say "no" to you*
 
 
-<p align="center">ℑ'𝔪 𝔫𝔬𝔱 𝔶𝔬𝔲𝔯 𝔥𝔦𝔤𝔥𝔫𝔢𝔰𝔰
-  
-<p align="center">𝔄 𝔡𝔞𝔪𝔰𝔢𝔩 𝔩𝔢𝔣𝔱 𝔥𝔢𝔩𝔭𝔩𝔢𝔰𝔰 𝔟𝔶 𝔣𝔯𝔦𝔤𝔥𝔱
-
-<p align="center">ℑ 𝔞𝔪 𝔞 𝔩𝔦𝔬𝔫𝔢𝔰𝔰
-
-<p align="center">𝔉𝔦𝔢𝔯ℭ𝔢 𝔞𝔰 ℑ 𝔴𝔞𝔩𝔨 𝔱𝔥𝔯𝔬𝔲𝔤𝔥 𝔱𝔥𝔢 𝔫𝔦𝔤𝔥𝔱
+<p align="center">--
 
 
-<p align="center">-
+*<p align="center">Keep your lies and your denial*
+
+*<p align="center">I am fighting for survival*
+
+*<p align="center">My heart is a changing shape*
+
+*<p align="center">What if I said "no" to you?*
 
 
+<p align="center">--
 
-<p align="center">ℑ'𝔪 𝔫𝔬𝔱 𝔶𝔬𝔲𝔯 𝔥𝔦𝔤𝔥𝔫𝔢𝔰𝔰
-  
-<p align="center">𝔄 𝔡𝔞𝔪𝔰𝔢𝔩 𝔩𝔢𝔣𝔱 𝔥𝔢𝔩𝔭𝔩𝔢𝔰𝔰 𝔟𝔶 𝔣𝔯𝔦𝔤𝔥𝔱
 
-<p align="center">ℑ 𝔞𝔪 𝔞 𝔩𝔦𝔬𝔫𝔢𝔰𝔰
+*<p align="center">What were you thinking?*
 
-<p align="center">𝔉𝔦𝔢𝔯ℭ𝔢 𝔞𝔰 ℑ 𝔴𝔞𝔩𝔨 𝔱𝔥𝔯𝔬𝔲𝔤𝔥 𝔱𝔥𝔢 𝔫𝔦𝔤𝔥𝔱
+*<p align="center">Shouldn't you know better?*
+
+*<p align="center">You took advantage of 
+**another** anxious people pleaser*
+
+
+<p align="center">--
+
+
+*<p align="center">I keep forgetting*
+
+*<p align="center">That you won't learn*
+
+*<p align="center">So, I keep getting*
+
+***<p align="center">Hurt***
 
 
 
