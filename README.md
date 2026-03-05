@@ -1,4 +1,6 @@
-![](https://komarev.com/ghpvc/?username=nottheghost&label=PATHOLOGICAL+LIARS&color=55499C)
+![IMG_7845](https://github.com/user-attachments/assets/ea80bc07-e066-434a-b3b4-70cd66ce8b9b)  ![](https://komarev.com/ghpvc/?username=nottheghost&label=PATHOLOGICAL+LIARS&color=55499C)
+
+
 
 
 
