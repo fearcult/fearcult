@@ -1,101 +1,94 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31x2dygswkaawllcptvpsg5m6mki&cover_image=true&theme=novatorem&showhu_offline=true&background_color=121212&interchange=true&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-![IMG_7763](https://github.com/user-attachments/assets/a798a50f-3ed4-4beb-85be-371cc7732f98)
-![IMG_7846](https://github.com/user-attachments/assets/915a8ffb-efee-421d-8b14-1e8b5be4412d)
+![IMG_7857](https://github.com/user-attachments/assets/5c3400c6-25ef-4299-a99e-6731e0f09b6c)
+
+![IMG_7858](https://github.com/user-attachments/assets/a26d6c69-19ef-4529-8574-d4a428f5bd90)
 
 
-STILL WORK IN PRORESS
 
-*<p align="center">What's the worst thing that could happen?*
-  
-*<p align="center">What's the worst thing you can imagine?*
+*<p align="center">A mountain song chills my warm skin*
 
-*<p align="center">This world is a nasty place*
+*<p align="center">A ballad of a lonesome peak*
 
-*<p align="center">I'm afraid to get comfortable*
+*<p align="center">I curse the ground, shed my old sins*
 
-
-<p align="center">--
+*<p align="center">For weight will only make me weak*
 
 
-*<p align="center">Unavoidable disaster*
 
-*<p align="center">Serial over-reactor*
-
-*<p align="center">My head is a nasty place*
-
-*<p align="center">I'm afraid to get comfortable*
+*<p align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.*
 
 
-<p align="center">--
+
+*<p align="center">I beg the stars to marry me*
+
+*<p align="center">For they are my guide*
+
+*<p align="center">But daylight comes to claim their beauty*
+
+*<p align="center">As fury paints the wasteland wide*
 
 
-*<p align="center">What were you thinking?*
-
-*<p align="center">Shouldn't you know better?*
-
-*<p align="center">You opened the door for 
-**an apex predator***
+*<p align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.*
 
 
-<p align="center">--
+*<p align="center">I'm not your highness*
+
+*<p align="center">A damsel left helpless by fright*
+
+*<p align="center">I am a lioness*
+
+*<p align="center">Fierce as I walk through the night*
 
 
-*<p align="center">I keep forgetting*
-
-*<p align="center">The lessons I've learned*
-
-*<p align="center">So, I keep getting*
-
-***<p align="center">Hurt***
+*<p align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.*
 
 
-<p align="center">--
+
+*<p align="center">A canvas, my makeshift shelter*
+
+*<p align="center">A man would never know his bride*
+
+*<p align="center">An angry sun before could melt her*
+
+*<p align="center">But calloused now she will survive*
 
 
-*<p align="center">Oh, the path of least resistance*
-
-*<p align="center">Foolish misinterpretation*
-
-*<p align="center">Your heart is a nasty place*
-
-*<p align="center">I'm afraid to say "no" to you*
+*<p align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.*
 
 
-<p align="center">--
+*<p align="center">With malice, beasts will show their fangs*
+
+*<p align="center">They're in for a surprise*
+
+*<p align="center">Bravely I will wield my weapon*
+
+*<p align="center">I made from fangs of those that died*
 
 
-*<p align="center">Keep your lies and your denial*
-
-*<p align="center">I am fighting for survival*
-
-*<p align="center">My heart is a changing shape*
-
-*<p align="center">What if I said "no" to you?*
+*<p align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.*
 
 
-<p align="center">--
+*<p align="center">I'm not your highness*
+
+*<p align="center">A damsel left helpless by fright*
+
+*<p align="center">I am a lioness*
+
+*<p align="center">Fierce as I walk through the night*
 
 
-*<p align="center">What were you thinking?*
-
-*<p align="center">Shouldn't you know better?*
-
-*<p align="center">You took advantage of 
-**another** anxious people pleaser*
+*<p align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.*
 
 
-<p align="center">--
+*<p align="center">I'm not your highness*
 
+*<p align="center">A damsel left helpless by fright*
 
-*<p align="center">I keep forgetting*
+*<p align="center">I am a lioness*
 
-*<p align="center">That you won't learn*
-
-*<p align="center">So, I keep getting*
-
-***<p align="center">Hurt***
+*<p align="center">Fierce as I walk through the night*
 
 
 
