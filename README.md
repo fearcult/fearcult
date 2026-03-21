@@ -7,17 +7,14 @@
 
 
 
-<sup>$${\color{#808080} I}$$
-<sup>$${\color{#797979} pulled}$$
-<sup>$${\color{#787878} off}$$
-<sup>$${\color{#777777} your}$$
-<sup>$${\color{#767676} wings}$$
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+pulled+off+your+wings+.+.+.+.;Then+I+LAUGHED)](https://git.io/typing-svg)
 
-<sup>$${\color{#757575} Then}$$
-<sup>$${\color{#747474} I}$$
-<sup>$${\color{#784946} **LAUGHED**}$$
+Imstill working on text wip
+
 
 <img width="564" height="188" alt="Untitled602_20260312134046" src="https://github.com/user-attachments/assets/410f078b-d1f2-4832-982a-55a4101b0f55" />
+
+
 
 
 <!--
