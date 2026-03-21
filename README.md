@@ -7,10 +7,6 @@
 
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I+pulled+off+your+wings+.+.+.+.;Then+I+LAUGHED)](https://git.io/typing-svg)
-
-Imstill working on text wip
-
 
 <img width="564" height="188" alt="Untitled602_20260312134046" src="https://github.com/user-attachments/assets/410f078b-d1f2-4832-982a-55a4101b0f55" />
 
