@@ -6,7 +6,8 @@
 
 
 
-remaking the frame because im not christian
+<img width="1000" height="929" alt="Untitled600_20260323141024" src="https://github.com/user-attachments/assets/4d010a23-e7ed-438d-9c6d-a27eee0f065c" />
+ 
 
 
 <img width="564" height="188" alt="Untitled602_20260312134046" src="https://github.com/user-attachments/assets/410f078b-d1f2-4832-982a-55a4101b0f55" />
