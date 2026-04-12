@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=nottheghost&label=𖦏&color=496691)
+![](https://komarev.com/ghpvc/?username=nottheghost&label=𖦏&color=719973)
 
-[strawpage](https://drownyouout.straw.page) 
+[⟢](https://drownyouout.straw.page) 
 wip
