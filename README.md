@@ -5,7 +5,9 @@
 
 [𓁺](https://interludee.straw.page)
 
-${\color{darkgrey}\textsf{strawpage is above this text.}}$
+<sub>${\color{darkgrey}\textsf{strawpage is above this text.}}$</sub>
+
+
 
 <img width="736" height="83" alt="IMG_8498" src="https://github.com/user-attachments/assets/ed1c06cc-1fc2-42d4-ba87-423477484581" />
 
