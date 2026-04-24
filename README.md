@@ -5,7 +5,7 @@
 
 [𓁺](https://interludee.straw.page)
 
-<sub>${\color{darkgrey}\textsf{strawpage is above this text.}}$</sub>
+<sub>${\color{darkgrey}\textsf{(strawpage is above this text.)}}$</sub>
 
 
 
